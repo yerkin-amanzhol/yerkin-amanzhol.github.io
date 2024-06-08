@@ -1,1 +1,0 @@
-# yerkin-amanzhol.github.io
